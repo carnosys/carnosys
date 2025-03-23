@@ -4,6 +4,6 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I used to eat ants as a child.
+- ⚡ Fun fact: I enjoy challenges :) 
 
 
