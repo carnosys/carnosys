@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @carnosys
-- 👀 I’m interested in Web Development, Android App Development, Cloud Computing 
+- 👀 I’m interested in Web Development, Artificial Intelligence, Cybersecurity
 - 🌱 I’m currently learning Full Stack Development
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
