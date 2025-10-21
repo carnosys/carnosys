@@ -4,6 +4,6 @@
 - 💞️ I’m looking to collaborate on any Web or AI project
 - 📫 How to reach me: tahanafis0@gmail.com 
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I am a part time dino nerd :) 
+- ⚡ Fun fact: I am a part time dino nerd 🦖
 
 
